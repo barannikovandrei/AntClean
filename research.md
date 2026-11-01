@@ -9,6 +9,7 @@ How ants works :
 The most dangerous ants in the world : 
 
 <img width="304" height="304" alt="image" src="https://github.com/user-attachments/assets/71ede5c0-6f38-4db2-92f3-a9046c5232a2" />
+
 The 'Myrmecia pyriformis' or the 'bulldog ant' 💀🥶
 
 This ant is the most dangerous because their venom triggers severe allergic reactions and anaphylaxis, and they have been responsible for multiple recorded human fatalities in Australia.
