@@ -19,3 +19,4 @@ They show little fear of humans, will aggressively defend their nests, and are k
 
 I also discover that 1 million ants can lift a human.
 A single ant can typically carry anywhere from 10 to 50 times (and in some species or theoretical estimates, even more) its own body weight.
+follow...
